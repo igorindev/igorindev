@@ -1,3 +1,3 @@
 ### HI 👋
 
-Meu nome é Igor Lamounier. Sou um Game Designer em formação, apaixonado por jogos.
+My name is Igor Lamounier. I'm a Game Designer.
